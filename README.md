@@ -28,7 +28,7 @@
 ###### <p align="center"> *You can check [Instagram](https://www.instagram.com/bhikan_deshmukh)✌*
 
 ### What is PI-X-TO??
-PI-X-TO is powered by aladdin coded by @bhikan_deshmukh. PI-X-TO help u for increasing Instagram followers
+PI-X-TO is powered by aladdin coded by @bhikan_deshmukh. PI-X-TO help u for Boost Your Device Touch Responce or Give you stable Ping for games
 
 
 ### Installation PI-X-TO
